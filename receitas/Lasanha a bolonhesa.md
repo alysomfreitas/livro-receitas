@@ -1,33 +1,50 @@
 ## Lasanha à Bolonhesa:man_cook:
 
-## Ingredientes
+## INGREDIENTES
 
-- 3 colheres de margarina
-- 4 colheres de farinha de trigo
-- 2 xícaras de leite
-- 2 xícaras de creme de leite
-- sal e noz-moscada a gosto
-- 1 colher de óleo
-- 2 dentes de alho amassados
-- 1 cebola picada
-- 300 g de carne moída
-- 3 xícaras de polpa de tomate batida no liquidificador
-- 3/4 xícara de água quente
+- 500 g [de massa de lasanha](https://blog.tudogostoso.com.br/cardapios/receitas-com-massa-da-lasanha/)
+- 500 g [de carne moída](https://blog.tudogostoso.com.br/cardapios/3-receitas-com-carne-moida/)
+- 2 caixas de creme de leite
+- 3 colheres de manteiga
+- 3 colheres de farinha de trigo
+- 500 g de presunto
+- 500 g de mussarela
 - sal a gosto
-- 200 g de presunto fatiada
-- 200 g de mussarela fatiada
-- 250 g de massa para lasanha
+- 2 copos de leite
+- 1 cebola ralada
+- 3 colheres de óleo
+- 1 caixa [de molho de tomate](https://blog.tudogostoso.com.br/dicas-de-cozinha/diferenca-entre-molho-e-extrato-de-tomate/)
+- 3 dentes de alho amassados
+- 1 pacote de queijo ralado
 
 ## MODO DE PREPARO
 
-1. **Molho branco:**
-2. Derreta a margarina e doure a farinha em fogo baixo mexendo sempre, junte o leite aos poucos.
-3. Cozinhe até obter um molho encorpado, acrescente o creme de leite e tempere com sal e noz-moscada.
-4. Reserve.
-5. **Molho a bolonhesa:**
-6. Aqueça o óleo junte o alho e a cebola até dourar.
-7. Acrescente a carne moída até fritar, quando a carne estiver frita acrescente a polpa de tomate e a água misture o sal e cozinhe até ferver.
-8. **Montagem:**
-9. Em um refratário grande, coloque uma camada de molho à bolonhesa, massa para lasanha, presunto, mussarela, molho branco.
-10. Adicione mais massa para lasanha presunto e mussarela e termine com molho à bolonhesa.
-11. Se quiser, polvilhe um pouco de queijo parmesão ralado e leve ao forno para gratinar por 20 minutos.
+​       **Lasanha:**
+
+1. Cozinhe [a massa](https://blog.tudogostoso.com.br/cardapios/tipos-massa-para-lasanha/) segundo as orientações do fabricante, despeje em um refratário com água gelada para não grudar e reserve. 
+
+   
+
+   **Molho à bolonhesa**
+
+2. Refogue o alho, a cebola, a carne moída, o molho de tomate, deixe cozinhar por 3 minutos e reserve.
+
+   
+
+   [**Molho branco**](https://blog.tudogostoso.com.br/cardapios/molho-branco-para-lasanha/)
+
+3. Derreta a margarina, coloque as 3 colheres de farinha de trigo e mexa.
+
+4. Despeje o leite aos poucos e continue mexendo.
+
+5. Por último, coloque o creme de leite, mexa por 1 minuto e desligue o fogo.
+
+   
+
+   **Montagem**
+
+6. Despeje uma parte do **molho à bolonhesa** em um refratário, a metade da massa, a metade do presunto, a metade da mussarela, todo o molho branco e o restante da massa.
+
+7. Repita as camadas até a borda do recipiente.
+
+8. Finalize com o queijo ralado e leve ao forno alto (220° C), preaquecido, por cerca de 20 minutos.
